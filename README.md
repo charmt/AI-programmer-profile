@@ -1,1 +1,0 @@
-# AI-programmer-profile
